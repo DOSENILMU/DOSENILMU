@@ -18,7 +18,7 @@ Tak heran jika banyak orang yang membutuhkan peran Hacker Topi Putih dalam kehid
 ## Hacker Topi Hitam
 Hacker Topi Hitam cenderung melakukan aksi hacking untuk tujuan yang tidak baik. Seperti misalnya membobol bank, merusak website dan keamanannya.
 Contoh simple dari Hacker Topi Hitam adalah maraknya kejadian akun fb terhack dan lalu digunakan untuk tujuan yang tidak baik serta merugikan. Yang mana pemilik akun menjadi kehilangan akses terhadap akunnya.
-Tak dipungkiri apabila cukup sering terjadi orang yang merasa dirugikan atas tindakan Hacker Topi Hitam ini. Contohnya seperti ketika seseorang yang mengalami akun Instagramnya terhack. Dan lalu mencari [Cara Hack IG](https://caramelihat.com/ "Cara Hack FB") untuk menghack akun Instagram yang sebelumnya sudah dihack oleh Hacker Topi Hitam.
+Tak dipungkiri apabila cukup sering terjadi orang yang merasa dirugikan atas tindakan Hacker Topi Hitam ini. Contohnya seperti ketika seseorang yang mengalami akun Instagramnya terhack. Dan lalu mencari [Cara Hack IG](https://caramelihat.com/ "Cara Hack IG") untuk menghack akun Instagram yang sebelumnya sudah dihack oleh Hacker Topi Hitam.
 
 Di jaman komunikasi yang serba digital, kita harus waspada dengan akun sosial media kita. Baik itu FB / Facebook, IG / Instagram. Maupun Twitter dan Tiktok. 
 
